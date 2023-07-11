@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mschfqirl
+- 👀 I’m interested in hacking (for good)
+- 🌱 I’m currently learning how to hack rblx acc
+- 💞️ I’m looking to collaborate on decoding methods
+- 📫 How to reach me by my email, @iidezzziii@gmail.com 
+--->
