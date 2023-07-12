@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mschfqirl
-- 👀 I’m interested in coind
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning how to code a game
 - 💞️ I’m looking to collaborate on decoding methods
 - 📫 How to reach me by my email, @iidezzziii@gmail.com 
